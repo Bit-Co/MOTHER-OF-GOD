@@ -1,2 +1,2 @@
-# MOTHER-OF-GOD-
-Auto Upgrades
+# MOTHER-OF-GOD
+@ WARRIOR PLUS
